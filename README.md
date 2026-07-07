@@ -1,1 +1,0 @@
-# AR-based-heritage-and-treasure-hunt-
